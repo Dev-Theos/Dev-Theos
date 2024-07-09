@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Dev-Theos
+- 👀 I’m interested in making games and having fun
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me:dont reach me
+- 😄 Pronouns:he/him
+- ⚡ Fun fact:i am new at coding
+- 
